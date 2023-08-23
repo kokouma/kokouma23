@@ -1,1 +1,2 @@
 # kokouma23
+I'm Frank Otieno, a mechatronic engineer with a passion for innovative and sustainable technology. I lead Coltium Industries.Intrigued by the intersection of technology and sustainability? So am I! Feel free to explore some of my projects and ideas on my GitHub profile at @kokouma. Together, let's create a greener, more efficient world through cutting-edge solutions. Join me on this exciting journey!
